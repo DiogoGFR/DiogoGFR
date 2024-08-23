@@ -8,5 +8,9 @@
   ## Você pode entrar em contato comigo em:
  📫 0000107392659xsp@al.educacao.sp.gov.br
 
+***OU EM:***
+
+ 📫 diogo.contaprofisssional@gmail.com
+
 
  ![](https://media1.tenor.com/m/FZ2QdOrqHF4AAAAC/under-the-sea-anime-fish.gif)
